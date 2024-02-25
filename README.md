@@ -1,0 +1,2 @@
+# ann
+my journey #crypto
